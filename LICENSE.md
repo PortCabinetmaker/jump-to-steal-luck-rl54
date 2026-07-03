@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks ultimate Script offers the most advanced jump to steal lucky blocks Script, with invisibility and instant win. Perfect for
 
 
 
